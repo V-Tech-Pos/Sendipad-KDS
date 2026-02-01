@@ -1,1 +1,0 @@
-# Sendipad-KDS
